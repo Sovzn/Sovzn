@@ -15,4 +15,4 @@
 
 
 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ My blog: https://sovzn.github.io/
